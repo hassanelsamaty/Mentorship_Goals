@@ -1,4 +1,4 @@
-# Mentorship Goals For My Team
+# Mentorship Goals 
 
 Mentorship Goals Needed To Finish
 
